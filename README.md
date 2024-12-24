@@ -1,7 +1,7 @@
 ---------
 
-### <br>  ❖ SILENT-SOBX-MD ❖
-🔰 **`THE WORLD BEST WHATSAPP BOT CREATED BY SILENTLOVER 432`** 🔰
+### <br>  ❖ MADNI-SOCIAL-MEDIA-MD ❖
+🔰 **`THE WORLD BEST WHATSAPP BOT `** 🔰
 
 ----------
 
@@ -10,12 +10,12 @@
 -------
 
  <p align="center">
-  <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=00008B&center=true&vCenter=true&multiline=false&lines=`SILENT+-+SOBX+-+MD+WHATSAPP+BOT`" alt="">
+  <a href="#"><img src="http://readme-typing-svg.herokuapp.com?color=00008B&center=true&vCenter=true&multiline=false&lines=`MADNI+-+SOCIAL-MEDIA+-+MD+WHATSAPP+BOT`" alt="">
 
 ------------
 
 <img align="center" height="auto"
-src="https://cardivo.vercel.app/api?name=SILENT%20SOBX%20MD%20V2&description=🥂THE%20WORLD%20BEST%20WHATSAPP%20BOT%★%20CREATED%20BY%20SILENT%20LOVER%20432%20KING%20OF%20KINGS%20OWNER%20SILENT%20LOVER%20AND%20SOBIA%20BUTT♥️&image=https://telegra.ph/file/e47b23583ab7ec42d58df.jpg?v=4&backgroundColor=%23ecf0f1&github=SILENTLOVER4&pattern=leaf&colorPattern=%23eaeaea"/>
+src="https://cardivo.vercel.app/api?name=M.A%20SOCIA-MEDIA%20MD%20V2&description=🥂THE%20WORLD%20BEST%20WHATSAPP%20BOT%★%20CREATED%20BY%20M.A%20SOCIAL%20432%20KING%20OF%20KINGS%20OWNER%20M.A%20SOCIAL%20AND%20MEDIA%20SERVICES♥️&image=https://telegra.ph/file/e47b23583ab7ec42d58df.jpg?v=4&backgroundColor=%23ecf0f1&github=MADNI4&pattern=leaf&colorPattern=%23eaeaea"/>
 
 <br>
 
@@ -60,7 +60,7 @@ src="https://cardivo.vercel.app/api?name=SILENT%20SOBX%20MD%20V2&description=�
 ![stars](https://img.shields.io/github/stars/SILENTLOVER40/SILENT-SOBX-MD?style=social)
 
 
-[![FORK SILENT-SOBX-MD](https://img.shields.io/badge/FORK%20-SILENT%20SOBX%20MD-white)](https://github.com/SILENTLOVER40/SILENT-SOBX-MD/fork)
+[![FORK MADNI-SOCIAL-MEDIA-MD](https://img.shields.io/badge/FORK%20-SILENT%20SOBX%20MD-white)](https://github.com/SILENTLOVER40/SILENT-SOBX-MD/fork)
 
 `⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛⚛`
 
@@ -81,12 +81,12 @@ src="https://cardivo.vercel.app/api?name=SILENT%20SOBX%20MD%20V2&description=�
 
 ### <br> ❖ FOR SUPPORT ❖
 
-**`➩ HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME SILENT✠LOVER⁴³²࿐➺`**
+**`➩ HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME MADNI SOCIAL MEDIA SERVICES࿐➺`**
 
 -------
 
 <p align="center">
-  <a href="https://wa.me/+923096287432?text=*ʜɪɪ+sɪʟᴇɴᴛʟᴏᴠᴇʀ--+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ!.+ɪ+ᴍᴇssᴀɢᴇᴅ+ʏᴏᴜ+ғʀᴏᴍ+sɪʟᴇɴᴛ-sᴏʙx-ᴍᴅ+ʀᴇᴘᴏ!!*" target="_blank">
+  <a href="https://wa.me/+923045549680? target="_blank">
     <img alt="whatsapp" src="https://img.shields.io/badge/ Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
 -----------    
